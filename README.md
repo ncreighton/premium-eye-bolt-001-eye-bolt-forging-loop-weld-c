@@ -1,0 +1,2 @@
+# premium-eye-bolt-001-eye-bolt-forging-loop-weld-c
+Stop losing track of your eye bolt forging projects and weld sequences—this Notion template turns chaos into a streamlined workshop workflow.  It solves the problem of scattered notes and forgotten steps, giving you a clear system to manage each eye bolt from raw material to finished loop weld. Best because it's tailored to the exact phases of eye
